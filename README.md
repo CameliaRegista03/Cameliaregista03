@@ -1,4 +1,3 @@
-![download](https://user-images.githubusercontent.com/78333709/152747039-637293be-c442-4d00-83b6-b9f71018d06e.jpg)
 
 # Halo semua! 
 
