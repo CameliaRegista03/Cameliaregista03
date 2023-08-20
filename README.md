@@ -3,11 +3,11 @@
 
 Perkenalkan nama saya **Camelia Regista**
 
-Saya seorang **Data Enthusiast** 
+Saya seorang **Data Enthusiast**  dan **Pembelajar Aktif**
 
 Saya juga senang dengan dunia tulis menulis, kamu bisa mengikuti tulisan yang saya tulis di media [Medium](https://cameliaregista.medium.com/)
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/camelia-r-48b635172/) ku ya.
+Jika kamu tertarik untuk terhubung secara professional, silakan melaju pada akun [Linkedin](https://www.linkedin.com/in/camelia-r-48b635172/) ku ya.
 
 Oh ya, saya juga memiliki akun credly untuk menampilkan badge digital yang saya peroleh [Credly](https://www.credly.com/users/camelia-regista/badges)
 
